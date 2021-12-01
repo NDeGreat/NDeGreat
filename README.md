@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NDeGreat
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning the basics
